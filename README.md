@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xunui
-- 👀 I’m interested in ...nft's
-- 🌱 I’m currently learning ...how to make my own nft
+- 👀 I’m interested in ..sfe place
+- 🌱 I’m currently learning ...how to make my own
 - 💞️ I’m looking to collaborate....hey world! 
 - 📫 How to reach me ...mpnet2y@outlook.com
 
